@@ -1,1 +1,1 @@
-This is our fitness tracker help that will provide you with all of the neccessary features without the paywall, enjoy!s
+This is our fitness tracker help that will provide you with all of the neccessary features without the paywall, enjoy!
